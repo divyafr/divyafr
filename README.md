@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @divyafr
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning c programming language
+- 📫 How to reach me - mail-@divyaafr@gmail.com instagram-divyafrfr 
